@@ -223,4 +223,4 @@ Future Wars is available as a full free version, including all features and upda
 Don't miss out on the strategy game that challenges your thinking and skills. **Download Future Wars now and lead your troops to victory!**
 
 ---
-**Last updated:** 2026-09-19 03:17:14 UTC
+**Last updated:** 2026-09-19 08:32:47 UTC
